@@ -1,0 +1,5 @@
+On the 1st September 2021, Texas enacted the the "Texas Heartbeat Act" preventing any woman from getting an abortion after any cardiac activity is detected (roughly 6 weeks into the pregnancy). This bill was introducted on the moral and religious grounds that human life is created at the point of conception and therefore has the right to life.
+
+If one were to argue for or against this view, what consistutes good evidence? How do we know that evidence is true? What constitutes something being morally good or evil? If we gain new evidence what should be the process for enforcing or changing this law? These are the questions we need to answer to form a bedrock of an ideal society. In this book we will figure out what is true, then what is right given what we know as truth, then how to organise as a society to maximise what is right, and finally how to live life in this ideal society.
+
+I hope by the end of this book not that you agree on every argument presented, but we have a common framework for handling disagreements and updating our societal beliefs in the most efficient way possible given new evidence.
